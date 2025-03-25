@@ -67,5 +67,5 @@ For any questions or collaborations, feel free to reach out!
 
 ---
 
-Made with ❤️ by [Your Name]
+Made with ❤️
 
